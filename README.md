@@ -1,4 +1,4 @@
-Thanks for visiting my github profile!
+Hi
 
 email : notwhitenight1357@gmail.com
 
